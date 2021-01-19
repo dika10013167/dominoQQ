@@ -1,6 +1,5 @@
 ## Bandar Domino QQ Online Terpercaya
-
-You can use the [editor on GitHub](https://github.com/dika10013167/dominoQQ/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Anda mencari bandar domino qq online terpercaya? anda berada di situs yang tepat. bergabunglah dengan pokerqq13, salah satu bandar poker judi domino online yang telah berpengalaman dan terbukti membayar. dapatkan promo dan bonus deposit menarik bagi anda member baru pokerqq13. Kunjungi [pokerQQ13](https://monferratopaesaggi.org) hanya butuh 1 akun untuk bisa memainkan banyak permainan judi kartu.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
