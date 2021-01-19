@@ -14,37 +14,4 @@ Ketika para player yang mengalami kekalahan ataupun punya masalah keluhan saat b
 QQ online yang biasa terdapat di sebuah aplikasi playstore dengan sistem offline atau tanpa memakai uang asli, kini sudah ada di situs kami. Untuk supaya anda bisa melangsungkan diri bermain judi qq online ini, maka harus mendaftar terlebih dulu di PokerQQ13. Qiu qiu online menjadi bahasa nama panjang dalam permainan ini. Ketika anda penasaran bagaimana cara bermain, maka anda tidak perlu khawatir akan hal memahaminya. Sebab, game ini sangat amat mudah dimengerti dan dimainkan melalui aplikasi terbaik ultimate gaming online.
  
 Situs Judi QQ PokerQQ13 Bandarq Online Terbaik
-Situs judi qq online setiap tahunnya terus bermuncul hingga puluhan bahkan ratusan. Namun tidak semua website situs judi onlin ini mempunyai kualitas terbaik. Maka dari itu, kami sebagai situs judi resmi sudah terbukti menjadi yang terbaik dari pada website betting lainnya. Selain trust atau terpercaya dengan aplikasi ultimate gaming online terpercaya adapun juga bonus-bonus yang kami sediakan untuk anda. Berbagai jenis bonus yang kami berikan ini dijamin akan membuat anda puas merasakannya. Raih kesempatan bermain bandarq online bersama player lainnya untuk mendapatkan kemenangan asli dan nyata, serta fair play hanya di PokerQQ13.
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/dika10013167/dominoQQ/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Situs judi qq online setiap tahunnya terus bermuncul hingga puluhan bahkan ratusan. Namun tidak semua website situs judi onlin ini mempunyai kualitas terbaik. Maka dari itu, kami sebagai situs judi resmi sudah terbukti menjadi yang terbaik dari pada website betting lainnya. Selain trust atau terpercaya dengan aplikasi ultimate gaming online terpercaya adapun juga bonus-bonus yang kami sediakan untuk anda. Berbagai jenis bonus yang kami berikan ini dijamin akan membuat anda puas merasakannya. Raih kesempatan bermain bandarq online bersama player lainnya untuk mendapatkan kemenangan asli dan nyata, serta fair play hanya di PokerQQ13. kunjungi [domino poker qq] (https://firemountainbrewery.com)
